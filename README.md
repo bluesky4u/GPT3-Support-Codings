@@ -58,13 +58,13 @@ MIT
 
 ### Questions 
 
-#### GitHub Username: min-hinthar 
+#### GitHub Username: bluesky4u 
 
-#### GitHub URL: https://github.com/scarlett130
+#### GitHub URL: https://github.com/bluesky4u
 
-#### GitHub Repo: https://github.com/scarlett1130/GPT3-Support-Codings
+#### GitHub Repo: https://github.com/bluesky4u/GPT3-Support-Codings
 
-#### Email: businessxfree2000@gmail.com
+#### Email: n.melo1013@gmail.com
 
 -----
 
